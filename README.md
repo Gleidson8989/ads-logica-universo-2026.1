@@ -1,0 +1,1 @@
+# ads-logica-universo-2026.1
